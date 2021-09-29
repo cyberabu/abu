@@ -60,7 +60,7 @@ Click WA logo to Join Support Group 👇
 Click ABU-SIRE-logo to Join Support Group 2👇
     <br>
 <br>
-  <a href="https://instagram.com/_bob_oxo?utm_medium=copy_link" target="blank"><img align="center" src="https://i.hizliresim.com/pce1372.png" alt="kyrie.baran" height="200" width="200" /></a>
+  <a href="https://instagram.com/_bob_oxo?utm_medium=copy_link" target="blank"><img align="center" src="https://www.linkpicture.com/q/20210920_080035.jpg" alt="kyrie.baran" height="200" width="200" /></a>
 </p>
     
 ## Setup
